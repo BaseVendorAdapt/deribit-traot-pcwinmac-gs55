@@ -1,4 +1,4 @@
-# 
+# Top deribit trading bot plugins pour Mac OS | Natif deribit trading bot plugins pour PC Windows. Avec trading de paires et gestion de portefeuille — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
